@@ -1,1 +1,1 @@
-# encynosure
+# encynosure magazine
